@@ -1,1 +1,0 @@
-# NerimanK.github.io
